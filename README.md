@@ -1,0 +1,1 @@
+# HastaneOtomasyon_VeriYapilari
